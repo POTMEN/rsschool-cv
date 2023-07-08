@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://POTMEN.github.io/rsschool-cv/cv  
